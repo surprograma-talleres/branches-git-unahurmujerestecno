@@ -6,7 +6,6 @@ Donde el día esconde
 Lumbre de la tierra
 Ceniza de sol.
 
-Lapacho
 También en mi alma
 La vida
 Sembró su color.
@@ -17,8 +16,6 @@ Crecido en el monte
 De mi corazón.
 
 Pájaro de amor
-Fruta de pasión
-Una lluvia gris
 Se llevó de mí
 El urutaú
 En el tacuaral
