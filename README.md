@@ -2,7 +2,6 @@
 Agrego esta línea para el pull request
 
 Lapacho
-Solito en el campo
 Donde el día esconde
 Lumbre de la tierra
 Ceniza de sol.
